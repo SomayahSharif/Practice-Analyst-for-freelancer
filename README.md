@@ -1,1 +1,1 @@
-# Practice-Analyst-for-freelancer
+# Practice-Business-Analyst-for-freelancer
